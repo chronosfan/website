@@ -13,3 +13,7 @@ YYYYYOOOOOOOOOOOOOOOOOOOOO __LOOOOOOOOOOOOOOOL__ !!!
 ##  VANGUARD
 
 __The Dark Dictator:__ His sword shall guide you into the abyss! Pave way, your lord has arrive!
+
+## Get started
+
+Stand up, _the_ , __VANGUARD!__
